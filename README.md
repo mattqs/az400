@@ -1,7 +1,7 @@
 # Bitcoin Alive 2025 Schedule
 
 **📅 Date:** Saturday, 8th March 2025  
-**📍 Venue:** Roundhouse, Sydney  
+**📍 Venue:** Roundhouse, Sydney International Rd, Kensington NSW 2052 
 
 ---
 
